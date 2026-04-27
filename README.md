@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Copilot studio
 - 📫 How to reach me  @Kask253
 - 😄 Pronouns: She 
-- ⚡ Fun fact: I enjoy to sing
+- ⚡ Fun fact: I enjoy to music
 
 <!---
 Kask253/Kask253 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
